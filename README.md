@@ -30,4 +30,4 @@ Texas region needed to be studied and the discounts to be reduced gradually.
 
 ![image](https://user-images.githubusercontent.com/78545675/142737604-2e56dc98-609e-4c2c-bde7-53bf002013fe.png)
 
-https://youtu.be/etX_VraZFUw
+details analysis can be seen here : https://youtu.be/etX_VraZFUw
