@@ -29,3 +29,5 @@ Texas region needed to be studied and the discounts to be reduced gradually.
 ![image](https://user-images.githubusercontent.com/78545675/142737602-d1cba263-7b21-4284-be16-d36f962bfdaf.png)
 
 ![image](https://user-images.githubusercontent.com/78545675/142737604-2e56dc98-609e-4c2c-bde7-53bf002013fe.png)
+
+https://youtu.be/etX_VraZFUw
